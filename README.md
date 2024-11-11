@@ -28,6 +28,11 @@ EJERCICIO 7
 ![image](https://github.com/user-attachments/assets/8f36a107-c97d-493a-aa28-cdb78cb78277)
 ![image](https://github.com/user-attachments/assets/d357ede2-2f54-441f-a3a0-2404c2394ac3)
 
+EJERCICIO 8
+![image](https://github.com/user-attachments/assets/dd614ae6-b9c1-4813-bf8a-e0a0643739f8)
+![image](https://github.com/user-attachments/assets/b3652710-afaf-4321-985b-3347db3b720c)
+
+
 
 
 
