@@ -32,6 +32,18 @@ EJERCICIO 8
 ![image](https://github.com/user-attachments/assets/dd614ae6-b9c1-4813-bf8a-e0a0643739f8)
 ![image](https://github.com/user-attachments/assets/b3652710-afaf-4321-985b-3347db3b720c)
 
+EJERCICIO 9
+![image](https://github.com/user-attachments/assets/5246244f-c0f5-45c0-81b9-d528a19fdbcd)
+![image](https://github.com/user-attachments/assets/68c2b5d2-e24b-46f4-b804-3615dcfd48f3)
+
+EJERCICIO 10 
+![image](https://github.com/user-attachments/assets/36d218b6-2aff-4ba7-99ff-5ddd9170fb5f)
+![image](https://github.com/user-attachments/assets/cbbfa595-3a7c-4009-bb3e-fca71cc564fa)
+
+
+
+
+
 
 
 
